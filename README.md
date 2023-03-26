@@ -1,6 +1,6 @@
 # Clicker
 
-https://mteikou.github.io/Clicker/
+https://YOPPYY.github.io/Clicker/
 
 くそげー
 
